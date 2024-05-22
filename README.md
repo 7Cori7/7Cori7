@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...web development and web design
 - 🌱 I’m currently learning ...everything I can about javaScript and Python
 - 💞️ I’m looking to collaborate on ...any project related to JS
-- 📫 How to reach me ... corinaidl7@gmail.com or corinaidldesign@gmail.com
+- 📫 How to reach me ... corinaidl7@gmail.com or Luna_lunita#2334 on discord
 - 😄 Pronouns: ...she/her 
 - ⚡ Fun fact: ...I don't have a mouth and I must scream
 
